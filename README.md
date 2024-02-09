@@ -1,4 +1,4 @@
-## Oie meu nome e Victoria
+## Oie meu nome é Victoria.
 Seja bem-vindo(a) 😁
 
  <div>
